@@ -47,7 +47,7 @@ The Best Airbnb Clone Script isn't just a platform; it's a revolution. It's your
 
  Don't miss out on the opportunity to revolutionize your rental business. Contact Sangvish today and embark on your journey to success with the best Airbnb Clone Script available.
 
-**Our Airbnb Clone's Live Demo -** [https://sangvish.com/airbnb-clone/ ](https://sangvish.com/airbnb-clone/#demo)
+**Our Airbnb Clone's Live Demo -** https://sangvish.com/airbnb-clone/#demo
 
 **Get In Touch With Us,**
 
