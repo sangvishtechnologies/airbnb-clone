@@ -1,4 +1,4 @@
-<h1 align="center">Unlock Your Rental Business Potential with Airbnb Clone</h1>
+<h1 align="center"> Airbnb Clone Script to Unlock Your Rental Business Potential </h1>
 
 With tourism booming, the demand for vacation rentals is reaching new heights. But for newcomers, breaking into this industry can seem overwhelming and costly. That's where [Airbnb clone](https://sangvish.com/airbnb-clone/) step in to simplify the journey. This ready-to-go rental management software is tailor-made to launch you into the thriving vacation rental market without the headaches of starting from scratch.
 # What Exactly is an Airbnb Clone?
